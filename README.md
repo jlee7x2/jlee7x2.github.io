@@ -1,3 +1,3 @@
-# jlee7x2.github.io
+# Joseph Lee
 
 Lorem ipsum dolor
